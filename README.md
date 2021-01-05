@@ -1,1 +1,1 @@
-# ZhanaDay
+# ZhanaDay.kz
